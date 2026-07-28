@@ -4,4 +4,4 @@
 - 🧠 Cog Sci student at UC Irvine
 - 💻 Interested in UI/UX, Product, and EdTech
 - 🌸 Outside of work, I enjoy: drawing, reading literature, and caffeine
-- 📩 Let's connect: vyctoriavu1@gmail.com
+- 📩 Let's connect: [LinkedIn](www.linkedin.com/in/vyctoria-vu)
